@@ -1,7 +1,7 @@
 ## Hi there 👋
 
 - 🔭 Atualmente estou trabalhando na esola
-- 🌱 Atualmente estou aprendendo japon
+- 🌱 Atualmente estou aprendendo japonês
 - 👯 Procuro colaborar em nada
 - 🤔 Estou procurando ajuda com ninguem
 - 💬 Pergunte-me sobre nada
