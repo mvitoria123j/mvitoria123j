@@ -8,7 +8,7 @@
 - 📫 Como entrar em contato comigo: gmail maria.vitoria.oliveira07@escola.pr.go.br
 - 😄 Pronomes: ...vitoria
 - ⚡ Curiosidade: ...
-
+.[youtube](
 ![](https://media1.tenor.com/m/voXHTXMJ_iMAAAAC/one-piece-anime.gif)
 
 
